@@ -1,5 +1,3 @@
-# Rong-Hao Liang
-
 **Assistant professor**
 
 _Department of Industrial Design, Eindhoven University of Technology, the Netherlands_
